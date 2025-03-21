@@ -12,7 +12,7 @@
 
      219059028
      
-<img src="https://moe.jitsu.top/img/?sort=r18" alt="sese">
+<img src="https://www.loliapi.com/acg/pc/" alt="sese">
 
 
 
