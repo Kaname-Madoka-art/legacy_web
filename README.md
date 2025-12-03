@@ -13,7 +13,7 @@
      219059028
      
 <img src="https://www.loliapi.com/acg/pc/" alt="miku">
-<img src="https://api.r10086.com/樱道随机图片api接口.php?图片系列=东方project1" alt="东方">
+<img src="https://img.paulzzh.com/touhou/random" alt="东方">
 
 
 
