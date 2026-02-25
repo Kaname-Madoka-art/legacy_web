@@ -5,7 +5,7 @@
 
 联系我:
  
-    email:Jan@885923.xyz
+    email:fortuna@131475.xyz
    邮件看到会回，欢迎给我发邮件！
 
  QQ群：
